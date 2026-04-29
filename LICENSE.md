@@ -1,4 +1,4 @@
-
+Experience sol's rng like never before with stealth sol's rng Script, the #1 Script. Includes no cooldown and infinite resources for unbeatable
 
 
 
